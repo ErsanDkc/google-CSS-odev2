@@ -1,1 +1,1 @@
-Google'ın ilk sayfasının çalışması..
+Old Google..
